@@ -1,0 +1,2 @@
+# portorivaitalenggoran
+portofolio rivai talenggoran
